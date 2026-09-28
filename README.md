@@ -1,0 +1,2 @@
+# premium-scrimshaw-tooth-001-scrimshaw-tooth-ink-stipple
+Tracking your scrimshaw designs across scattered notebooks, reference images, and ink samples is killing your creative flow. The Scrimshaw Tooth &amp; Ink Stipple Craft Hub is a unified Notion template built specifically for tooth artists who need to organize their work, stipple techniques, and material inventory in one beautiful, searchable space.  St
